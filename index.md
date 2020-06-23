@@ -26,3 +26,8 @@ Er leidet sehr unter seiner Einsamkeit. Seine große Liebe heißt Rhonda.
 * ALF’s birthday is October 28, 1756.
 
 * ALF’s home planet of Melmac had a green sky and blue grass. Its sun, however, was purple.
+
+Cooles Zitat von Alf
+> Ich und arbeiten? Arbeiten ist was für Ackergäule aber nicht die Aufgabe eines Topmanagers!
+> Ich lach mich tot
+
