@@ -17,3 +17,12 @@ Da die Gefahr groß ist, dass er von den Behörden entdeckt und dann zu Forschun
 wird Alf ständig von den Tanners versteckt. Nur ein ausgewählter Personenkreis darf ihn sehen. 
 
 Er leidet sehr unter seiner Einsamkeit. Seine große Liebe heißt Rhonda. 
+
+## Wissenswertes
+* ALF supposedly had two sisters—a half and a full. The full sister, Augie, showed up in the cartoons, and the half-sister, Dianne, was mentioned on trading cards.
+
+* ALF had eight stomachs. Which is probably why he had such a notoriously huge appetite.
+
+* ALF’s birthday is October 28, 1756.
+
+* ALF’s home planet of Melmac had a green sky and blue grass. Its sun, however, was purple.
