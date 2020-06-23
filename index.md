@@ -31,3 +31,5 @@ Cooles Zitat von Alf
 > Ich und arbeiten? Arbeiten ist was für Ackergäule aber nicht die Aufgabe eines Topmanagers!
 > Ich lach mich tot
 
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/9a/Alf.svg"/>
